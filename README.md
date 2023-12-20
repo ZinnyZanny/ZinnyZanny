@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ZinnyZanny
 - 👀 I’m interested in Computing ;)
 - 🌱 I’m currently learning coding.
-- 📫 How to reach me - add me on the gram @zainnath
+- 📫 How to reach me - add me on insta @zainnath
 
 
 <!---
